@@ -1,0 +1,1 @@
+# fabrychnyi_metod
